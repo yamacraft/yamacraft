@@ -3,4 +3,4 @@
 [合同会社ヤマダ印](https://yamadajirushi.co.jp/)の代表社員兼唯一の実働部隊です。
 
 ----
-[2020年10月以降のお仕事を探しています](https://yamacraft.github.io/note/next-work-202010/)
+[お仕事、絶賛募集中です](https://yamadajirushi.co.jp/posts/202010-yamacraft-work-wanted/)
